@@ -70,5 +70,3 @@ I'm always curious about how financial systems work and how technology is shapin
 - 🌐 Portfolio: in progress
     
 ---
-
-Thanks for visiting! 🌟
